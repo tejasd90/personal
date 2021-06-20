@@ -1,0 +1,17 @@
+- toothpaste
+- body soap
+- utensils soap
+- clothes soap
+- face powder
+- shampoo
+- hair oil
+- I soap
+- I shampoo
+- I powder
+- toilet cleaner
+- floor cleaner
+- fruits
+- vegetables
+- processed food
+- mosquito repellent
+- handwash
