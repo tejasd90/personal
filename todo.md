@@ -7,3 +7,4 @@
 - Scalp
 - Cardiologist
 - Calendar
+- nominations in all banks, brokers, accounts, msft, pf
