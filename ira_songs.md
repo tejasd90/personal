@@ -1,0 +1,4 @@
+- Dnyanmandira satyam shivam sundara
+- Anandi anand gade
+- Uthun sakali ti madhmashi
+- Piwale tambus un kowale
