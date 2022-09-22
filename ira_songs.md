@@ -2,3 +2,5 @@
 - Anandi anand gade
 - Uthun sakali ti madhmashi
 - Piwale tambus un kowale
+- Hirkani
+- Mag lok boltil dhanya dhanya ti mata ji deshasathi tayaar karite bala
