@@ -1,0 +1,8 @@
+- boomerang
+- frisbee
+- binoculars
+- kaleidoscope
+- word scramble
+- telescope
+- animals book
+- cariappa book
