@@ -6,3 +6,5 @@
 - telescope
 - animals book
 - cariappa book
+- science games/toys
+- magnets games/toys
