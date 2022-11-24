@@ -1,4 +1,4 @@
-- boomerang
+- boomerang(different types, fan also)
 - frisbee
 - binoculars
 - kaleidoscope
@@ -8,3 +8,4 @@
 - cariappa book
 - science games/toys
 - magnets games/toys
+- globe, atlas, countries books with flag and capitals etc
