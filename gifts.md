@@ -9,3 +9,4 @@
 - science games/toys
 - magnets games/toys
 - globe, atlas, countries books with flag and capitals etc
+- compass
