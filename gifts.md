@@ -11,3 +11,4 @@
 - globe, atlas, countries books with flag and capitals etc
 - compass
 - proper chessboard
+- calligraphy set
