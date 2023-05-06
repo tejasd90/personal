@@ -12,3 +12,4 @@
 - compass
 - proper chessboard
 - calligraphy set
+- mouth organ
