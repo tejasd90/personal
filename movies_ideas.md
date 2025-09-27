@@ -1,3 +1,4 @@
 - A Tax paying MAANG/IT company guy suddenly asked to die. What would be his thoughts about death? What would he feel like? Maybe the actual story is Rabies?
 - Trust
 - Unloved
+- LJ Chain
