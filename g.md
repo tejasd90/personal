@@ -1,0 +1,6 @@
+- "Your emotions"
+- Phone as a formality
+- Selectively complaining me about your informer
+- Not helping, humanity
+- Why suddenly "raag majhyavar nighala" wihout any warning? always on earning days
+- Poisoning I's ears and minds
