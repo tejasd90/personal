@@ -4,3 +4,4 @@
 - Not helping, humanity
 - Why suddenly "raag majhyavar nighala" wihout any warning? always on earning days
 - Poisoning I's ears and minds
+- "Jaavai mhanun kahi kartavya nahi nibhavala"
