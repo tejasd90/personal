@@ -5,3 +5,8 @@
 - Why suddenly "raag majhyavar nighala" wihout any warning? always on earning days
 - Poisoning I's ears and minds
 - "Jaavai mhanun kahi kartavya nahi nibhavala"
+- No one tried to resolve feud between M and A. Now "ARE" trying to break the relation
+- Aadvik did not wish this year
+- Sold self respect with me
+- 80% times fights when your parents came(lie, its 10%) vs 80-90% times when my parents came
+- 
