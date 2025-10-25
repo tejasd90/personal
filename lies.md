@@ -9,4 +9,7 @@
 - Aadvik did not wish this year
 - Sold self respect with me
 - 80% times fights when your parents came(lie, its 10%) vs 80-90% times when my parents came
-- 
+- Bangles
+- "Photo kadhun takato hech dhande karto". Tuza bhau kaai karto mag?
+- "Avani chi favourite taai Iru taai"
+- Continuously "Aajobanchi naat"
