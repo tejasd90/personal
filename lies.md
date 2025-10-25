@@ -13,3 +13,4 @@
 - "Photo kadhun takato hech dhande karto". Tuza bhau kaai karto mag?
 - "Avani chi favourite taai Iru taai"
 - Continuously "Aajobanchi naat"
+- Behave differently for own brother vs own husband so much.
