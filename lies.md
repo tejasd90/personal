@@ -17,4 +17,4 @@
 - You also recorded my mother and Ira, didn't you? I didn't get paranoid then.
 - You don't deserve me. When I was depressed, alone and in house, you were out partying, kittying. You didn't think once about me.
 - Height of wannabeism with the song "Country Roads take me home". Never once appreciated my taste in music, never wanted to find out my taste in music, we heard a musician play it at Mauritius, I have played it multiple times, then all of a sudden want that song for status. You live just for status.
-- 
+- Whats the point of writing me "Saari zindagi mi tula japnaar aahe", and then kicking me multiple times in 2022?
