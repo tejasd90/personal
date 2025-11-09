@@ -13,6 +13,7 @@
 - "Photo kadhun takato hech dhande karto". Tuza bhau kaai karto mag?
 - "Avani chi favourite taai Iru taai"
 - Continuously "Aajobanchi naat"
+- "Oven", "To faaltu manus aahe"
 - Behave differently for own brother vs own husband so much.
 - You also recorded my mother and Ira, didn't you? I didn't get paranoid then.
 - You don't deserve me. When I was depressed, alone and in house, you were out partying, kittying. You didn't think once about me.
